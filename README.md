@@ -1,4 +1,4 @@
-# TelegramMassVoteUp
+# TelegramMassPollVoteUp
 Send Bulk fake poll votes with your accounts by this tool.
 
 Contact with me to get the Password of Zip file on :
