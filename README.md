@@ -5,7 +5,7 @@ Purchase it on my website : https://github.com/erfan4lx/Telegram-Fake-Vote-Sende
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx0
+ Telegram : https://t.me/erfan4lx12
   
  Email : erfan4lx@gmail.com
  
